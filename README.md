@@ -2,5 +2,5 @@
 
 Hi Im Abdulqadir 👋
 
-🚀 Aspiring Software Developer
+🚀 I’m an aspiring Full-Stack Developer currently training with Step8Up Bootcamp, with a strong focus on personal growth and continuous self-improvement.
 
