@@ -1,4 +1,4 @@
-![Abdulqadir Abdillahi (1)](https://github.com/user-attachments/assets/7bb4a9e9-027c-4b34-8229-a9225d18e7cf)
+![Abdulqadir Abdillahi (2)](https://github.com/user-attachments/assets/a11f8ed9-ed20-4bfe-aba0-d2024c113526)
 
 Hi Im Abdulqadir 👋
 
